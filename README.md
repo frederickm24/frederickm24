@@ -11,6 +11,6 @@
 - 📫 How to reach me: email
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: my favorite color is red
--->https://github.com/frederickm24/frederickm24/issues/1#issue-1642219701
+-->![image](https://user-images.githubusercontent.com/123981889/228315944-72576cf2-5577-4b91-aae6-b56793b6763b.png)
 
 -->
